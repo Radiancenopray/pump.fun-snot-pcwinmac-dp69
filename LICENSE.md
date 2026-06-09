@@ -1,4 +1,4 @@
-# 
+# Ligero pump.fun sniper bot complementos para Mac OS | Oficial pump.fun sniper bot complementos para PC Windows. Con conversión de formatos y análisis de mercado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
